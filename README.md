@@ -4,7 +4,7 @@
 - 💞️ I'm looking to collaborate because each one of us can do a little more for a better future
 - 📫 How to reach me 
 
-linkedin.com/in/andré-menezes-7467b814a
+linkedin.com/in/andremnzs
 
 andremnzs@hotmail.com
 
